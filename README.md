@@ -1,7 +1,7 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=boysquirt&label=stalkers.%20&color=ac7e53&style=flat" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=boysquirt&label=hiraeths'.%20&color=ac7e53&style=flat" </p>
 <p align="center">
 
-<img src="https://files.catbox.moe/vgmzus.gif?width=100&height=100" >
+<img src="https://files.catbox.moe/2hssax.jpg">
 
 
 <h6 align="center">
