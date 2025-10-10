@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=boysquirt&label=hiraeths'.%20&color=ac7e53&style=flat" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=boysquirt&label=hiraeths'.%20&color=262524&style=flat" </p>
 <p align="center">
 
 <img src="https://files.catbox.moe/2hssax.jpg">
@@ -12,7 +12,7 @@
 
    [prns page](https://en.pronouns.page/@armyoftwo)  ♱  [strawpage](https://rentry.co/aarmyboy)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpyymyioopnmotk09dmpgpxul&cover_image=true&theme=novatorem&show_offline=false&background_color=ac7e53&interchange=true&bar_color=ac7e53&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpyymyioopnmotk09dmpgpxul&cover_image=true&theme=novatorem&show_offline=false&background_color=ac7e53&interchange=true&bar_color=262524&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <h6 align="center" > hi kieran i love u my broth er 
   <h6 align="center" >
