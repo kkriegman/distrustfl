@@ -10,7 +10,7 @@
     you left lying around. '
     <h6 align="center">
 
-   [prns page](https://en.pronouns.page/@armyoftwo)  ♱  
+   [prns page](https://en.pronouns.page/@distrustfl)  ♱  
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpyymyioopnmotk09dmpgpxul&cover_image=true&theme=novatorem&show_offline=false&background_color=ac7e53&interchange=true&bar_color=262524&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
