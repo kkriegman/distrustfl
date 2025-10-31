@@ -1,18 +1,19 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=boysquirt&label=hiraeths'.%20&color=262524&style=flat" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=boysquirt&label=hiraeths'.%20&color=700404&style=flat" </p>
 <p align="center">
 
-<img src="https://files.catbox.moe/2hssax.jpg">
+<p align="center"> 
+  <img src="https://github.com/user-attachments/assets/1887d1b4-070f-461c-8409-092961855358?width=10&height=10">
 
 
 <h6 align="center">
-' & the bodies ,
+' i'll take all the blame ,
   <h6 align="center" >
-    you left lying around. '
+    everythings my fault. '
     <h6 align="center">
 
    [prns page](https://en.pronouns.page/@distrustfl)  ♱  
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpyymyioopnmotk09dmpgpxul&cover_image=true&theme=novatorem&show_offline=false&background_color=ac7e53&interchange=true&bar_color=262524&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hpyymyioopnmotk09dmpgpxul&cover_image=true&theme=novatorem&show_offline=false&background_color=700404&interchange=true&bar_color=700404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <h6 align="center" > hi kieran i love u my broth er 
   <h6 align="center" >
